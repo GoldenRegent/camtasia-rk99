@@ -1,4 +1,4 @@
-# 
+# Clandestino Adobe Premiere Pro para PC scripts es el mejor Adobe Premiere Pro para PC scripts con seguimiento de movimiento y efectos de transición. Seguro, confiable y optimizado
 
 
 
